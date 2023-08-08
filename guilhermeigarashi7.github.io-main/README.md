@@ -1,1 +1,0 @@
-# guilhermeigarashi7.github.io
